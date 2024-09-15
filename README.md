@@ -16,7 +16,7 @@ Glain occasionally speaks in 3rd person as a habit so do be aware!
 
 Remember to read my pony's name before chatting first but he's available most of the tume so don't feel shy to chat ^^!
 
-**Main Brainrotting: PHIGHTING!**
+**Main Brainrotting: Guts & Blackpowder, PHIGHTING! and Regretevator!!**
 
 ------------------------------------
 

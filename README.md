@@ -27,6 +27,6 @@ wip
 
 -------------------------------------
 
-# I love my partners <3. Please don't die on Glain! 💝💖
+# I love my partners <3. Please don't die on Glain! 🫶💝💖 
 ![image](https://file.garden/ZogMxQjYh2LIAH4W/20240915_161532.png) 
 Glain wanna draw the others but doesn't have their references. :(

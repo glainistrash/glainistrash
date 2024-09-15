@@ -16,6 +16,8 @@ Glain occasionally speaks in 3rd person as a habit so do be aware!
 
 Remember to read my pony's name before chatting first but he's available most of the tume so don't feel shy to chat ^^!
 
+I usually hang out around the PHIGHTING! area using Umbrella, Boombox, Rainbox or my P!Sona ponies! I have others too! :D
+
 **Main Brainrotting: Guts & Blackpowder, PHIGHTING! and Regretevator!!**
 
 ------------------------------------
@@ -26,7 +28,7 @@ Remember to read my pony's name before chatting first but he's available most of
 - `C+H` Cuddle and hide! I allow anyone to cuddle with me or hide behind me. 💝
 - `IC` In character! I will talk like the current pony I'm using, I will still talk about myself so no worries!
 - `[sleepy], [school], [drawing], etc` Semi-AFK/busy. If you want to grab my attention, you can whisper to me!
-- `Looking for chat` appears above my head means I'm up for a chat!
+- `Looking for chat` appears above my head means I'm down for a chat!
 - `Looking for roleplay` appears above my head means I'm down for a roleplay!
 
 -------------------------------------

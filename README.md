@@ -1,16 +1,13 @@
-## Hi there 👋
+### Basic information
 
-<!--
-**glainistrash/glainistrash** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Glain | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisexual | Knows Vietnamese, English and a bit of Japanese.
 
-Here are some ideas to get you started:
+!! Diagnosed with depression, anxiety, ADHD and insomnia !!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<sup>^Copypasta from my Pronouns Page</sup>
+
+### Introduction
+
+Greetings! My name is Glain!
+
+wip

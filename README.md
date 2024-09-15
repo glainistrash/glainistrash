@@ -9,10 +9,14 @@ Glain | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳
 ------------------------------------
 
 ### Introduction
+ 
+Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for almost a decade.
 
-Greetings! My name is Glain!
+Glain occasionally speaks in 3rd person as a habit so do be aware!
 
-wip
+Remember to read my pony's name before chatting first but he's available most of the tume so don't feel shy to chat ^^!
+
+**Main Brainrotting: PHIGHTING!**
 
 ------------------------------------
 

@@ -18,7 +18,7 @@ Remember to read my pony's name before chatting first but he's available most of
 
 I usually hang out around the PHIGHTING! area using Umbrella (my P! OC), Boombox, Rainbox or my P!Sona ponies (Claws)! I have others too! :D
 
-I also hang out im the G&B area (which is below the P! area) using Silas or Harvey (Both OCs)!
+I also hang out in the G&B area (which is below the P! area) using Silas or Harvey (Both OCs)!
 
 **Main Brainrotting: Guts & Blackpowder, PHIGHTING! and Regretevator!!**
 

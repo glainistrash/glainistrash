@@ -35,6 +35,23 @@ I also hang out in the G&B area (which is below the P! area) using Silas or Harv
 
 -------------------------------------
 
+### Social Media
+
+Glain isn't active on some of them but why not sharing?
+
+[Twitter](https://x.com/GlainTrashArt?t=2wvxaqWSQEZZhJlK7dDi0g&s=09) 
+
+[Instagram](https://www.instagram.com/glaintrashart?igsh=bHR4NGwxcWc1cG5q) 
+
+Cara: @glaintrashart
+
+Discord: @glainistrash
+
+-------------------------------------
+
 # I love my partners <3. Please don't die on Glain! 🫶💝💖 
 ![image](https://file.garden/ZogMxQjYh2LIAH4W/20240915_161532.png) 
 Glain wanna draw the others but doesn't have their references. :(
+
+
+#### May edit/change in the future if needed!

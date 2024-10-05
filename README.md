@@ -43,7 +43,7 @@ Glain isn't active on some of them but why not sharing?
 
 [Instagram](https://www.instagram.com/glaintrashart?igsh=bHR4NGwxcWc1cG5q) 
 
-Cara: @glaintrashart
+[Cara](https://cara.app/glaintrashart) 
 
 Discord: @glainistrash
 

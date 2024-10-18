@@ -16,9 +16,9 @@ Glain occasionally speaks in 3rd person as a habit so do be aware!
 
 Remember to read my pony's name before chatting first but he's available most of the tume so don't feel shy to chat ^^!
 
-I usually hang out around the PHIGHTING! area using Umbrella (my P! OC), Boombox, Rainbox or my P!Sona ponies (Claws)! I have others too! :D
+I usually hang out around the PHIGHTING! area using [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Umbrella-%20P!%20OC%20-%20INT_W2I_C%2BH-stand-shadow-name-bg-padded-16x.png) (my P! OC), [Boombox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Boombox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Rainbox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Rainbox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png) or [Claws](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Claws-P!Sona-INT_C%2BH_IC-stand-shadow-name-bg-padded-16x.png) (My P!Sona)! I have others too! :D
 
-I also hang out in the G&B area (which is below the P! area) using Silas or Harvey (Both OCs)!
+I also hang out in the G&B area (which is below the P! area) using [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Silas-G%26B%20OC-INT_W2I-stand-shadow-name-bg-padded-16x.png) or [Harvey](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Harvey-G%26B%20OC-INT_C%2BH-stand-shadow-name-bg-padded-16x.png) (Both OCs)!
 
 **Main Brainrotting: Guts & Blackpowder, PHIGHTING! and Regretevator!!**
 
@@ -55,3 +55,5 @@ Glain wanna draw the others but doesn't have their references. :(
 
 
 #### May edit/change in the future if needed!
+
+#### Update: Provides images for my pony town skins so you can find me easier!

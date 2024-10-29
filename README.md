@@ -37,15 +37,34 @@ I'm more active in thr G&B area so please interact with me there!! ^_^
 
 -------------------------------------
 
+### DO NOT INTERACT
+
+- Proshippers, pedophiles, groomers, etc...
+- Homophobes, Transphobes, etc...
+- Basic DNI
++ More might be added in the future.
+
+-------------------------------------
+
+### INTERACT WITH CAUTION
+
+- DID/OSDD (I did not have good experience with them for the past couple of days. Pony Town has become slowly toxic so it increased the amount of people to fake their mental illness). The sole expectation to this is my partners.
+- Dandy's World “fans” (The fandom is the reason. But I like the game, it's adorable in some ways.)
++ More might be added in the future.
+
+-------------------------------------
+
 ### Social Media
 
-Glain isn't active on some of them but why not sharing?
+Glain isn't active on some of them but why not sharing? Although not active but Glain's DM is opened!
 
 [Twitter](https://x.com/GlainTrashArt?t=2wvxaqWSQEZZhJlK7dDi0g&s=09) 
 
 [Instagram](https://www.instagram.com/glaintrashart?igsh=bHR4NGwxcWc1cG5q) 
 
 [Cara](https://cara.app/glaintrashart) 
+
+[Tumblr](https://www.tumblr.com/glaintrashart?source=share) 
 
 Discord: @glainistrash
 
@@ -59,3 +78,5 @@ Glain wanna draw the others but doesn't have their references. :(
 #### May edit/change in the future if needed!
 
 Update: fixed grammar and spelling. i'm now more active in G&B area so please find me there <3
+
+update 2: added dni and iwc (interact with caution) list

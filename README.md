@@ -18,9 +18,9 @@ Remember to read my pony's name before chatting first but he's available most of
 
 I usually hang out around the PHIGHTING! area using [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Umbrella-%20P!%20OC%20-%20INT_W2I_C%2BH-stand-shadow-name-bg-padded-16x.png) (my P! OC), [Boombox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Boombox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x%20(1).png), [Rainbox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Rainbox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png) or [Claws](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Claws-P!Sona-INT_C%2BH_IC-stand-shadow-name-bg-padded-16x.png) (My P!Sona)! I have others too! :D
 
-I also hang out in the G&B area (which is below the P! area) using [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Silas-G%26B%20OC-INT_W2I-stand-shadow-name-bg-padded-16x.png) or [Harvey](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Harvey-G%26B%20OC-INT_C%2BH-stand-shadow-name-bg-padded-16x.png) (Both OCs)!
+I also hang out in the G&B area (which is below the P! area) using [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_i'm%20blind_-G%26B%20OC-INT_C%2BH-stand-name-bg-padded-16x.png), [Harvey](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_hey%20Big%20Si!_-G%26B%20OC-INT_C%2BH-stand-name-bg-padded-16x.png) or [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Millard%20Gordon%20Gilbert-G%26B%20OC-stand-name-bg-padded-toy346-16x.png) (All OCs)!
 
-I'm more active in thr G&B area so please interact with me there!! ^_^ 
+I'm more active in the G&B area so please interact with me there!! ^_^ 
 
 **Main Brainrotting: Guts & Blackpowder, PHIGHTING! and Regretevator!!**
 
@@ -77,6 +77,4 @@ Glain wanna draw the others but doesn't have their references. :(
 
 #### May edit/change in the future if needed!
 
-Update: fixed grammar and spelling. i'm now more active in G&B area so please find me there <3
-
-update 2: added dni and iwc (interact with caution) list
+Update: added a new pony skin and fixed spelling (again)

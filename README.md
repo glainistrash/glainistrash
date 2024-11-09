@@ -16,13 +16,17 @@ Glain occasionally speaks in 3rd person as a habit so do be aware!
 
 Remember to read my pony's name before chatting first but he's available most of the time so don't feel shy to chat ^^!
 
-I usually hang out around the PHIGHTING! area using [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Umbrella-%20P!%20OC%20-%20INT_W2I_C%2BH-stand-shadow-name-bg-padded-16x.png) (my P! OC), [Boombox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Boombox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x%20(1).png), [Rainbox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Rainbox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png) or [Claws](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Claws-P!Sona-INT_C%2BH_IC-stand-shadow-name-bg-padded-16x.png) (My P!Sona)! I have others too! :D
+I sometimes hang out around the PHIGHTING! area using [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Umbrella-%20P!%20OC%20-%20INT_W2I_C%2BH-stand-shadow-name-bg-padded-16x.png) (my P! OC), [Boombox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Boombox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x%20(1).png), [Rainbox](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Rainbox%20-%20P!%20-%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png) or [Claws](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Claws-P!Sona-INT_C%2BH_IC-stand-shadow-name-bg-padded-16x.png) (My P!Sona)! I have others too! :D
 
-I also hang out in the G&B area (which is below the P! area) using [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_i'm%20blind_-G%26B%20OC-INT_C%2BH-stand-name-bg-padded-16x.png), [Harvey](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_hey%20Big%20Si!_-G%26B%20OC-INT_C%2BH-stand-name-bg-padded-16x.png) or [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Millard%20Gordon%20Gilbert-G%26B%20OC-stand-name-bg-padded-toy346-16x.png) (All OCs)!
+I usually hang out in the G&B area (which is below the P! area) using [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_i'm%20blind_-G%26B%20OC-INT_C%2BH-stand-name-bg-padded-16x.png), [Harvey](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_hey%20Big%20Si!_-G%26B%20OC-INT_C%2BH-stand-name-bg-padded-16x.png) or [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Millard%20Gordon%20Gilbert-G%26B%20OC-stand-name-bg-padded-toy346-16x.png) (All OCs)!
 
-I'm more active in the G&B area so please interact with me there!! ^_^ 
+I'm more active in the G&B area so please interact with me there!! ^_^
 
-**Main Brainrotting: Guts & Blackpowder, PHIGHTING! and Regretevator!!**
+In the same area, you may find me in these (I recently got dragged into 2 new fandoms, help)!: [DvN cosplay](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_speechless_-DvN%20cos-INT_C%2BH-stand-name-bg-padded-16x.png), [Faker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Faker-DvN%20OC-INT_IC-stand-name-bg-padded-16x.png) (DvN OC), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_when%20i%20see%20you%20cry_-DD%20OC-INT-stand-name-bg-padded-16x.png) (DD OC) amd [Vest](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_it%20makes%20me%20smile_-DD%20OC-INT-stand-name-bg-padded-16x.png) (DD OC)
+
+<sub><ins>Underlined: Current main focus, will most likely to talk about it the most!</ins></sub>
+
+**Main Brainrotting: <ins>Dummies vs Noobs</ins>, <ins>Doomspire Defense</ins>, <ins>Guts & Blackpowder</ins>, PHIGHTING! and Regretevator!!**
 
 ------------------------------------
 
@@ -77,4 +81,4 @@ Glain wanna draw the others but doesn't have their references. :(
 
 #### May edit/change in the future if needed!
 
-Update: added a new pony skin and fixed spelling (again)
+Update: two new fandoms, yipeee

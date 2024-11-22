@@ -70,15 +70,10 @@ Glain isn't active on some of them but why not sharing? Although not active but 
 
 [Tumblr](https://www.tumblr.com/glaintrashart?source=share) 
 
+[BlueSky](https://bsky.app/profile/glaintrashart.bsky.social) 
+
 Discord: @glainistrash
 
 -------------------------------------
 
-# I love my partners <3. Please don't die on Glain! 🫶💝💖 
-![image](https://file.garden/ZogMxQjYh2LIAH4W/20240915_161532.png) 
-Glain wanna draw the others but doesn't have their references. :(
-
-
-#### May edit/change in the future if needed!
-
-Update: two new fandoms, yipeee
+#### May edit/change in the future if needed

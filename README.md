@@ -48,14 +48,6 @@ In the same area, you may find me in these (I recently got dragged into 2 new fa
 
 -------------------------------------
 
-### INTERACT WITH CAUTION
-
-- DID/OSDD (I did not have good experience with them for the past couple of days. Pony Town has become slowly toxic so it increased the amount of people to fake their mental illness).
-- Dandy's World “fans” (The fandom is the reason. But I like the game, it's adorable in some ways.)
-+ More might be added in the future.
-
--------------------------------------
-
 ### Social Media
 
 Glain isn't active on some of them but why not sharing? Although not active but Glain's DM is opened!

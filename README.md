@@ -42,8 +42,7 @@ In the same area, you may find me in these (I recently got dragged into 2 new fa
 ### DO NOT INTERACT
 
 - Proshippers, pedophiles, groomers, etc...
-- Homophobes, Transphobes, etc...
-- Basic DNI
+- [Basic DNI](https://dni-criteria.carrd.co/)
 + More might be added in the future.
 
 -------------------------------------

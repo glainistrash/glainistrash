@@ -1,6 +1,12 @@
+❝ Stay safe, kids. Don't trust the internet. ❞
+
+![image](https://file.garden/ZogMxQjYh2LIAH4W/20241204_152429.jpg)
+
+------------------------------------
+
 ### Basic information
 
-Glain | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisexual | Knows Vietnamese, English and a bit of Japanese.
+Glain | 16 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisexual | Knows Vietnamese, English and a bit of Japanese.
 
 !! Diagnosed with depression, anxiety, ADHD and insomnia !!
 
@@ -11,6 +17,8 @@ Glain | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳
 ### Introduction
  
 Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for almost a decade.
+
+Glain occasionally speaks in 3rd person as a habit. Additionally, y may also see me talks like my OCs so hope y don't mind!
 
 Remember to read my pony's name before chatting first but he's available most of the time so don't feel shy to chat ^^!
 

@@ -28,11 +28,11 @@ I usually hang out in the G&B area (which is below the P! area) using [Silas](ht
 
 I'm more active in the G&B area so please interact with me there!! ^_^
 
-In the same area, you may find me in these (I recently got dragged into 2 new fandoms, help)!: [DvN cosplay](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_speechless_-DvN%20cos-INT_C%2BH-stand-name-bg-padded-16x.png), [Faker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Faker-DvN%20OC-INT_IC-stand-name-bg-padded-16x.png) (DvN OC), [Nusian Infantry](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23069%EF%B8%B6-%20me%20when%20DvN%20_%20INT_C%2BH-stand-shadow-name-bg-16x%20(1).png), [Cloaker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23103%EF%B8%B6-%20Cloaker-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-16x%20(1).png), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_when%20i%20see%20you%20cry_-DD%20OC-INT-stand-name-bg-padded-16x.png) (DD OC) and [Vest](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_it%20makes%20me%20smile_-DD%20OC-INT-stand-name-bg-padded-16x.png) (DD OC)
+In the same area, you may find me in these (I recently got dragged into 2 new fandoms, help)!: [DvN cosplay](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23128-%20Jing%20%E9%9D%99_quiet%20_ic-DvN%20cos-stand-shadow-name-bg-16x.png), [Faker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-Faker-DvN%20OC-INT_IC-stand-name-bg-padded-16x.png) (DvN OC), [Nusian Infantry](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23069%EF%B8%B6-%20me%20when%20DvN%20_%20INT_C%2BH-stand-shadow-name-bg-16x%20(1).png), [Cloaker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23103%EF%B8%B6-%20Cloaker-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-16x%20(1).png), [Sparta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23130%EF%B8%B6-%20Sparta-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-16x.png), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_when%20i%20see%20you%20cry_-DD%20OC-INT-stand-name-bg-padded-16x.png) (DD OC), [Vest](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-_it%20makes%20me%20smile_-DD%20OC-INT-stand-name-bg-padded-16x.png) (DD OC) and [my Roblox Avatar but in Pony Town vers.](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23127%EF%B8%B6-%20Shrimp%20Back%20_%20INT_C%2BH-stand-shadow-name-bg-16x.png) 
 
 <sub><ins>Underlined: Current main focus, will most likely to talk about it the most!</ins></sub>
 
-**Main Brainrotting: <ins>Dummies vs Noobs</ins>, <ins>Doomspire Defense</ins>, <ins>Guts & Blackpowder</ins>, PHIGHTING! and Regretevator!!**
+**Main Brainrotting: <ins>Dummies vs Noobs</ins>, <ins>Doomspire Defense</ins>, <ins>Guts & Blackpowder</ins>, <ins>Blocktales</ins>, PHIGHTING! and Regretevator!!**
 
 ------------------------------------
 
@@ -70,6 +70,8 @@ Glain isn't active on some of them but why not sharing? Although not active but 
 [BlueSky](https://bsky.app/profile/glaintrashart.bsky.social) 
 
 Discord: @glainistrash
+
+Roblox: @MurrddrNewStuff
 
 -------------------------------------
 

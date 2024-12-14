@@ -6,7 +6,7 @@
 
 ### Basic information
 
-Glain | 16 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisexual | Knows Vietnamese, English and a bit of Japanese.
+Glain | 16 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisex, gay | Knows Vietnamese, English and a bit of Japanese.
 
 !! Diagnosed with depression, anxiety, ADHD and insomnia !!
 

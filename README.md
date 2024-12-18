@@ -38,9 +38,7 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 
 <sup>Will make a separate page to store all of my COS/OCs. Hopefully after exams</sup>
 
-<sub><ins>Underlined: Current main focus, will most likely to talk about it the most!</ins></sub>
-
-**Main Brainrotting: <ins>Tower Defense Simulator</ins>, <ins>Dummies vs Noobs</ins>, <ins>Doomspire Defense</ins>, <ins>Guts & Blackpowder</ins>, <ins>Blocktales</ins>, PHIGHTING! and Regretevator!!**
+**Main Brainrotting: Tower Defense Simulator, Dummies vs Noobs, Doomspire Defense, Guts & Blackpowder, Blocktales !!!**
 
 ------------------------------------
 
@@ -49,9 +47,9 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 - `W2I` Whisper to interact!
 - `C+H` Cuddle and hide! I allow anyone to cuddle with me or hide behind me. 💝
 - `IC` In character! I will talk like the current pony I'm using, I will still talk about myself so no worries!
-- `[sleepy], [school], [drawing], etc` Semi-AFK/busy. If you want to grab my attention, you can whisper to me!
-- `Looking for chat` appears above my head means I'm down for a chat!
-- `Looking for roleplay` appears above my head means I'm down for a roleplay!
+- `IMS` In my style, same meanin as `MV` meanin My version.
+- `IWC/IWEC` Interact with (extreme) caution/care.
+- `[playin], [school], [drawin], etc` Semi-AFK/busy. If you want to grab my attention, you can whisper to me!
 
 -------------------------------------
 

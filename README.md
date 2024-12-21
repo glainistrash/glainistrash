@@ -57,13 +57,13 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
-+ More might be added in the future.
+- DID/OSDD/SYSTEMS (Especially heavy fivtives system, self-diagnosed, endosystems, etc...)
 
 -------------------------------------
 
 ### INTERACT WITH EXTREME CAUTION
 
-- DID/OSDD/SYSTEMS (Specifically heavy fivtives system, self-diagnosed, endosystems, etc...)
+- DID/OSDD/SYSTEMS
 - Dandy World fandom as a whole
 
 -------------------------------------

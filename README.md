@@ -61,6 +61,13 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 
 -------------------------------------
 
+### INTERACT WITH EXTREME CAUTION
+
+- DID/OSDD/SYSTEMS (Specifically heavy fivtives system, self-diagnosed, endosystems, etc...)
+- Dandy World fandom as a whole
+
+-------------------------------------
+
 ### Social Media
 
 Glain isn't active on some of them but why not sharing? Although not active but Glain's DM is opened!
@@ -82,3 +89,5 @@ Roblox: @MurrddrNewStuff
 -------------------------------------
 
 #### May edit/change in the future if needed
+
+update note: im tired of pretendin so im addin the iwec list back. why? bad experiences again.

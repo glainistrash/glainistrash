@@ -34,11 +34,13 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 [Default outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23115-%20Jing%20%E9%9D%99_quiet%20_ic-DvN%20cos-stand-shadow-name-bg-padded-16x.png), [Durga Outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23118%20--%20----%20----%20_DvN%20Cos%3BINT-stand-shadow-name-bg-padded-16x.png), [Cloaker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23095%EF%B8%B6-%20dropkicks%20y%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Dominian](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23096%EF%B8%B6-%20Dominian-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Sparta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23117%EF%B8%B6-%20Sparta-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Sians](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23067%EF%B8%B6-%20Sians-DvN%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Faker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23062%EF%B8%B6-%20Faker-DvN%20OC-INT_C%2BH-stand-shadow-name-bg-padded-16x.png)
 
 **Tower Denfense Simulator:**
-[Commander](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23123%EF%B8%B6-%20overworked%20mf%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Engineer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23130%EF%B8%B6-%20Engineer-TDS%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23131%EF%B8%B6-%20Umbrella-TDS%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png) (still new to the fandom)
+[Commander](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23123%EF%B8%B6-%20overworked%20mf%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Engineer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23130%EF%B8%B6-%20Engineer-TDS%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23131%EF%B8%B6-%20Umbrella-TDS%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png)
+
+**Visionary Squad:** [Commander](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23145%EF%B8%B6-%20old%20man-VS%20_%20INT-stand-shadow-name-bg-padded-toy390-16x.png), [Paintballer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23152%EF%B8%B6-%20Paintballer-VS%20_%20INT-stand-shadow-name-bg-padded-16x.png), Cryo, Mimi (both are still a wip so I will add em later)
 
 <sup>Will make a separate page to store all of my COS/OCs. Hopefully after exams</sup>
 
-**Main Brainrotting: Tower Defense Simulator, Dummies vs Noobs, Doomspire Defense, Guts & Blackpowder, Blocktales !!!**
+**Main Brainrotting: Visionary Squad, Tower Defense Simulator, Dummies vs Noobs, Doomspire Defense, Guts & Blackpowder, Blocktales !!!**
 
 ------------------------------------
 

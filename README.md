@@ -62,6 +62,7 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS (Especially heavy fivtives system, self-diagnosed, endosystems, etc...)
+- Tower Defense Simulator fandom (Heavy direct to that ONE TDS person on PT, I do not tolerate harassment towards my friend. Go fuck yourself.)
 
 -------------------------------------
 

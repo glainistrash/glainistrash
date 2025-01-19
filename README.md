@@ -28,7 +28,7 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23024%EF%B8%B6-%20RMK_Silas-G%26B%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Harvey](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23025%EF%B8%B6-%20RMK_Harvey-G%26B%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23033%EF%B8%B6-%20Millard-G%26B%20OC%20_%20INT-stand-shadow-name-bg-padded-toy17-16x.png), [Danish Surgeon](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23034%EF%B8%B6-%20DE%20KOMMER!%20HJ%C3%86LP%20OS!-stand-shadow-name-bg-padded-toy372-16x.png), [Random British](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23035%EF%B8%B6-%20Bloody%20untie%20us!-G%26B-stand-shadow-name-bg-padded-toy393-16x.png)
 
 **Doomspire Defense:**
-[Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23069%EF%B8%B6-%20RMK_Umbrella-DD%20OC%3BINT-stand-shadow-name-bg-padded-16x.png), [Vest](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23073%EF%B8%B6-%20RMK_Vest-DD%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png), [General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23071%EF%B8%B6-%20_BRING%20OUT%20THE%20NAPALM!_-stand-shadow-name-bg-padded-16x.png), [Advisor](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23119%EF%B8%B6-%20Advisor-IMS-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Admiral Mike](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23078%EF%B8%B6-%20RMK_GAY!!!-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Scythe](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23091%EF%B8%B6-%20RMK_Scythe-DD%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png)
+[Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23068%EF%B8%B6-%20Umbrella-DD%20OC%20_%20INT-stand-shadow-name-bg-padded-16x%20(1).png), [Vest](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23073%EF%B8%B6-%20RMK_Vest-DD%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png), [General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23071%EF%B8%B6-%20_BRING%20OUT%20THE%20NAPALM!_-stand-shadow-name-bg-padded-16x.png), [Advisor](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23119%EF%B8%B6-%20Advisor-IMS-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Admiral Mike](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23078%EF%B8%B6-%20RMK_GAY!!!-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Scythe](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23091%EF%B8%B6-%20RMK_Scythe-DD%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
 **Dummies Vs Noobs:**
 [Default outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23115-%20Jing%20%E9%9D%99_quiet%20_ic-DvN%20cos-stand-shadow-name-bg-padded-16x.png), [Durga Outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23118%20--%20----%20----%20_DvN%20Cos%3BINT-stand-shadow-name-bg-padded-16x.png), [Cloaker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23095%EF%B8%B6-%20dropkicks%20y%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Dominian](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23096%EF%B8%B6-%20Dominian-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Sparta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23117%EF%B8%B6-%20Sparta-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Sians](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23067%EF%B8%B6-%20Sians-DvN%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Faker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23062%EF%B8%B6-%20Faker-DvN%20OC-INT_C%2BH-stand-shadow-name-bg-padded-16x.png)
@@ -43,6 +43,8 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 <sup>Will make a separate page to store all of my COS/OCs. Hopefully after exams</sup>
 
 **Main Brainrotting: Visionary Squad, Tower Defense Simulator, Dummies vs Noobs, Doomspire Defense, Guts & Blackpowder, Blocktales !!!**
+
+And for the love of god, **please** use the hide button if someone is making you uncomfortable instead of starting a drama and looking for arguments.
 
 ------------------------------------
 
@@ -62,7 +64,6 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS (Especially heavy fivtives system, self-diagnosed, endosystems, etc...)
-- Heavy direct to that ONE TDS person on PT, I do not tolerate harassment towards my friend. Go fuck yourself.
 
 -------------------------------------
 

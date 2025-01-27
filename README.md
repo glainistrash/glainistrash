@@ -38,7 +38,9 @@ I always hang out below P! area due to my lag (usually whenever I play on laptop
 
 **Visionary Squad:** [Commander](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23145%EF%B8%B6-%20old%20man-VS%20_%20INT-stand-shadow-name-bg-padded-toy390-16x.png), [Paintballer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23142%EF%B8%B6-%20Paintballer-VS%20_%20INT-stand-shadow-name-bg-padded-16x.png), Cryo, Mimi (both are still a wip so I will add em later), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23133%EF%B8%B6-%20Umbrella-VS%20OC%20_%20INT-stand-shadow-name-bg-padded-toy32-16x.png), [Captain](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23146%EF%B8%B6-%20Captain-VS%20OC%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
-**Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Chance](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23155%EF%B8%B6-%20Chance-Forsaken%20_%20C%2BH-stand-shadow-name-bg-padded-16x.png)
+**Forsaken:** [Chance](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23155%EF%B8%B6-%20Chance-Forsaken%20_%20C%2BH-stand-shadow-name-bg-padded-16x.png), [Elliot](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23162%EF%B8%B6-%20ChanceXElliotOTP-stand-shadow-name-bg-padded-16x.png)
+
+**Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
 <sup>Will make a separate page to store all of my COS/OCs. Hopefully after exams</sup>
 

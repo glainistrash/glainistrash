@@ -1,6 +1,4 @@
-《Fais attention, mon cher Jack. Monte sur mon dos, je vais nous sortir d’ici !》- Silas, 1813
-
-![image](https://file.garden/ZogMxQjYh2LIAH4W/Untitled56_20250123205734.png)
+❝ My obsession with Tower Defense games ain't okay. ❞
 
 ------------------------------------
 

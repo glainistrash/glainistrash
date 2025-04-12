@@ -18,7 +18,7 @@ Glain occasionally speaks in 3rd person as a habit. Additionally, y may also see
 
 Remember to read my pony's name before chatting first but he's available most of the time so don't feel shy to chat ^^!
 
-I always hang out below P! area due to my lag (usually whenever I play on laptop) or my homie's lag. You will usually find me in these cos/OCs:
+I always hang out below roblox area due to my lag (usually whenever I play on laptop) or my homie's lag. You will usually find me in these cos/OCs:
 
 **Guts and Blackpowder:**
 [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Silas%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Harvey](needs remake), [Millard](needs remake)
@@ -58,13 +58,12 @@ And for the love of god, **please** use the hide button if someone is making you
 
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
-- DID/OSDD/SYSTEMS (Especially heavy fivtives system, self-diagnosed, endosystems, etc...)
+- DID/OSDD/SYSTEMS
 
 -------------------------------------
 
 ### INTERACT WITH EXTREME CAUTION
 
-- DID/OSDD/SYSTEMS
 - Dandy World fandom as a whole
 
 -------------------------------------

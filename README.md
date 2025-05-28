@@ -14,11 +14,7 @@ Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | ðŸ‡
  
 Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for almost a decade.
 
-Glain occasionally speaks in 3rd person as a habit. Additionally, y may also see me talks like my OCs so hope y don't mind!
-
-Remember to read my pony's name before chatting first but he's available most of the time so don't feel shy to chat ^^!
-
-I always hang out below roblox area due to my lag (usually whenever I play on laptop) or my homie's lag. You will usually find me in these cos/OCs:
+I always hang out below roblox area. You will usually find me in these cos/OCs:
 
 **Guts and Blackpowder:**
 [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png), [Harvey](needs remake), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Millard_RMK-stand-shadow-name-bg-padded-16x.png)
@@ -88,4 +84,4 @@ Roblox: @MurrddrNewStuff
 
 -------------------------------------
 
-#### march 2025: i forgot about this so i edited out some info
+#### I sometimes forgot my Github exists so I rarely checked here ðŸ˜­

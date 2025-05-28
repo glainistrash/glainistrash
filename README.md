@@ -55,12 +55,15 @@ And for the love of god, **please** use the hide button if someone is making you
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS
+- Phighting fandom
 
 -------------------------------------
 
 ### INTERACT WITH EXTREME CAUTION
 
-- Dandy World fandom as a whole
+- Dandy World fandom
+- Forsaken fandom
+- Regretevator fandom
 
 -------------------------------------
 

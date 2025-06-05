@@ -17,10 +17,10 @@ Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for al
 I always hang out below roblox area. You will usually find me in these cos/OCs:
 
 **Guts and Blackpowder:**
-[Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png), [Harvey](needs remake), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Millard_RMK-stand-shadow-name-bg-padded-16x.png)
+[Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png), [Harvey](needs remake), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Millard_RMK-stand-shadow-name-bg-padded-16x.png), [Barry](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%EF%B8%B6-%20Strawbarry_RMK-stand-shadow-name-bg-padded-ponyplush-16x.png)
 
 **Doomspire Defense:**
-[Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23068%EF%B8%B6-%20Umbrella-DD%20OC%20_%20INT-stand-shadow-name-bg-padded-16x%20(1).png), [General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%EF%B8%B6-%20_BRING%20OUT%20THE%20NAPALM!_-stand-shadow-name-bg-padded-16x.png), [Advisor](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23079%EF%B8%B6-%20Advisor-MV-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Admiral Mike](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23077%EF%B8%B6-%20Admiral%20Mike-DD%20_%20C%2BH-stand-shadow-name-bg-padded-16x.png), [Yellow General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23076%EF%B8%B6-%20Yellow%20General-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png)
+[Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%20OC%EF%B8%B6-%20Umbrella_RMK-stand-shadow-name-bg-padded-16x.png), [General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%EF%B8%B6-%20_BRING%20OUT%20THE%20NAPALM!_-stand-shadow-name-bg-padded-16x.png), [Advisor](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23079%EF%B8%B6-%20Advisor-MV-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Admiral Mike](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23077%EF%B8%B6-%20Admiral%20Mike-DD%20_%20C%2BH-stand-shadow-name-bg-padded-16x.png), [Yellow General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23076%EF%B8%B6-%20Yellow%20General-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
 **Dummies Vs Noobs:**
 [Default outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23115-%20Jing%20%E9%9D%99_quiet%20_ic-DvN%20cos-stand-shadow-name-bg-padded-16x.png), [Durga Outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23118%20--%20----%20----%20_DvN%20Cos%3BINT-stand-shadow-name-bg-padded-16x.png), [Cloaker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23095%EF%B8%B6-%20dropkicks%20y%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Dominian](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23096%EF%B8%B6-%20Dominian-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Sparta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23117%EF%B8%B6-%20Sparta-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Faker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23062%EF%B8%B6-%20Faker-DvN%20OC-INT_C%2BH-stand-shadow-name-bg-padded-16x.png)
@@ -36,6 +36,12 @@ I always hang out below roblox area. You will usually find me in these cos/OCs:
 **Main Brainrotting: Visionary Squad, Tower Defense Simulator, Dummies vs Noobs, Doomspire Defense, Guts & Blackpowder, Blocktales !!!**
 
 And for the love of god, **please** use the hide button if someone is making you uncomfortable instead of starting a drama and looking for arguments.
+
+------------------------------------
+
+I am also Co-host in one of Maifa Games! Usually the House of No Returns Mafia, you may find me co-hosting with [this cos](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%20AU%EF%B8%B6-%20CO-HOST%20_%20Mafia%20Gen-stand-shadow-name-bg-padded-16x.png).
+
+Outside of co-hosting, I also play the other Mafia Games! You may find me in [this cos](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20_Tch---__Commander-stand-shadow-name-bg-padded-16x%20(1).png) a lot. When I spectate, I use [this cos](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20Bald%20Comm%20%5BSPEC%5D-stand-shadow-name-bg-padded-16x.png) instead.
 
 ------------------------------------
 

@@ -4,7 +4,7 @@
 
 ### Basic information
 
-Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisex, Bi | Knows Vietnamese, English and a bit of Japanese.
+Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisex, Gay | Knows Vietnamese, English and a bit of Japanese.
 
 <sup>^Copypasta from my Pronouns Page</sup>
 

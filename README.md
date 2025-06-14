@@ -10,11 +10,11 @@ Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | ðŸ‡
 
 ------------------------------------
 
-### Introduction
+### Introduction and where to find me!
  
 Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for almost a decade.
 
-I always hang out below roblox area. You will usually find me in these cos/OCs:
+I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) . You will usually find me in these cos/OCs:
 
 **Guts and Blackpowder:**
 [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png), [Harvey](needs remake), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Millard_RMK-stand-shadow-name-bg-padded-16x.png), [Barry](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%EF%B8%B6-%20Strawbarry_RMK-stand-shadow-name-bg-padded-ponyplush-16x.png)
@@ -35,9 +35,10 @@ I always hang out below roblox area. You will usually find me in these cos/OCs:
 
 **Main Brainrotting: Visionary Squad, Tower Defense Simulator, Dummies vs Noobs, Doomspire Defense, Guts & Blackpowder, Blocktales !!!**
 
-And for the love of god, **please** use the hide button if someone is making you uncomfortable instead of starting a drama and looking for arguments.
 
 ------------------------------------
+
+Or sometimes in [Dock/Island](https://file.garden/ZogMxQjYh2LIAH4W/Untitled88_20250614185636.png).
 
 I am also Co-host in one of Maifa Games! Usually the House of No Returns Mafia, you may find me co-hosting with [this cos](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%20AU%EF%B8%B6-%20CO-HOST%20_%20Mafia%20Gen-stand-shadow-name-bg-padded-16x.png).
 

@@ -46,17 +46,6 @@ Outside of co-hosting, I also play the other Mafia Games! You may find me in [th
 
 ------------------------------------
 
-### Tags I use in Pony Town!
-- `INT` Interact! I allow any interactions please talk to me. 🫶
-- `W2I` Whisper to interact!
-- `C+H` Cuddle and hide! I allow anyone to cuddle with me or hide behind me. 💝
-- `IC` In character! I will talk like the current pony I'm using, I will still talk about myself so no worries!
-- `IMS` In my style, same meanin as `MV` meanin My version.
-- `IWC/IWEC` Interact with (extreme) caution/care.
-- `[playin], [school], [drawin], etc` Semi-AFK/busy. If you want to grab my attention, you can whisper to me!
-
--------------------------------------
-
 ### DO NOT INTERACT
 
 - Proshippers, pedophiles, groomers, etc...
@@ -87,6 +76,8 @@ Glain isn't active on some of them but why not sharing? Although not active but 
 [Tumblr](https://www.tumblr.com/glaintrashart?source=share) 
 
 [BlueSky](https://bsky.app/profile/glaintrashart.bsky.social) 
+
+[ArtFight](https://artfight.net/~MurderMakesStuff)
 
 Discord: @glainistrash
 

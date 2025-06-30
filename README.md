@@ -33,7 +33,7 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 **Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
 
-**Main Brainrotting: Visionary Squad, Tower Defense Simulator, Dummies vs Noobs, Doomspire Defense, Guts & Blackpowder, Blocktales !!!**
+**Main Brainrotting: Visionary Squad, Tower Defense Simulator, Doomspire Defense, Guts & Blackpowder, Blocktales and Kindergarten !!!**
 
 
 ------------------------------------

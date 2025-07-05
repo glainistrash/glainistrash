@@ -22,13 +22,14 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 **Doomspire Defense:**
 [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%20OC%EF%B8%B6-%20Umbrella_RMK-stand-shadow-name-bg-padded-16x.png), [General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%EF%B8%B6-%20_BRING%20OUT%20THE%20NAPALM!_-stand-shadow-name-bg-padded-16x.png), [Advisor](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23079%EF%B8%B6-%20Advisor-MV-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Admiral Mike](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23077%EF%B8%B6-%20Admiral%20Mike-DD%20_%20C%2BH-stand-shadow-name-bg-padded-16x.png), [Yellow General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23076%EF%B8%B6-%20Yellow%20General-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
-**Dummies Vs Noobs:**
-[Default outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23115-%20Jing%20%E9%9D%99_quiet%20_ic-DvN%20cos-stand-shadow-name-bg-padded-16x.png), [Durga Outfit](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23118%20--%20----%20----%20_DvN%20Cos%3BINT-stand-shadow-name-bg-padded-16x.png), [Cloaker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23095%EF%B8%B6-%20dropkicks%20y%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Dominian](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23096%EF%B8%B6-%20Dominian-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Sparta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23117%EF%B8%B6-%20Sparta-DvN%20_%20INT_C%2BH-stand-shadow-name-bg-padded-16x.png), [Faker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23062%EF%B8%B6-%20Faker-DvN%20OC-INT_C%2BH-stand-shadow-name-bg-padded-16x.png)
-
 **Tower Denfense Simulator:**
 [Commander](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%EF%B8%B6-%20Commander_RMK-W2I-stand-shadow-name-bg-padded-16x.png), [Engineer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23130%EF%B8%B6-%20Engineer-TDS%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Freezer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%EF%B8%B6-%20Freezer%20%5Bspectating%5D-stand-shadow-name-bg-padded-16x.png), [Electroshocker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%EF%B8%B6-%20Electroshocker-stand-shadow-name-bg-padded-16x.png) 
 
-**Visionary Squad:** [Commander](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23VS%EF%B8%B6-%20old%20man__Commander-stand-shadow-name-bg-padded-16x.png), [Paintballer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23142%EF%B8%B6-%20Paintballer-VS%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23VS%20OC%EF%B8%B6-%20Umbrella%20_%20INT-stand-shadow-name-bg-padded-toy32-16x.png), [Captain](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23VS%20OC%EF%B8%B6-%20Captain%20_%20INT-stand-shadow-name-bg-padded-16x.png)
+**Visionary Squad:**
+[Commander](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23VS%EF%B8%B6-%20old%20man__Commander-stand-shadow-name-bg-padded-16x.png), [Paintballer](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23142%EF%B8%B6-%20Paintballer-VS%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23VS%20OC%EF%B8%B6-%20Umbrella%20_%20INT-stand-shadow-name-bg-padded-toy32-16x.png), [Captain](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23VS%20OC%EF%B8%B6-%20Captain%20_%20INT-stand-shadow-name-bg-padded-16x.png)
+
+**Kindergarten:**
+[Protagonist/Kidd/Kid](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23KG%EF%B8%B6-%20i%20still%20can't%20read-stand-shadow-name-bg-padded-16x.png), [Nugget](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23KG%EF%B8%B6-%20NUGGET%20CAVE%20OF%20LOVE-stand-shadow-name-bg-padded-16x.png), [Felix](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23KG%EF%B8%B6-%20rich%20boy-stand-shadow-name-bg-padded-16x.png), Theodore (WIP) 
 
 **Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
@@ -51,7 +52,6 @@ Outside of co-hosting, I also play the other Mafia Games! You may find me in [th
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS
-- Phighting fandom
 
 -------------------------------------
 
@@ -60,6 +60,7 @@ Outside of co-hosting, I also play the other Mafia Games! You may find me in [th
 - Dandy World fandom
 - Forsaken fandom
 - Regretevator fandom
+- Phighting fandom
 
 -------------------------------------
 

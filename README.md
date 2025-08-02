@@ -1,4 +1,5 @@
-❝ I love my wife. 💖 ❞
+![Me and my malewife <3](https://file.garden/ZogMxQjYh2LIAH4W/Untitled1035_20250624033922.png)
+## ❝ 𝙸 𝚖𝚒𝚜𝚜 𝚖𝚢 𝚖𝚊𝚕𝚎𝚠𝚒𝚏𝚎. 𝙸 𝚠𝚘𝚗𝚍𝚎𝚛 𝚒𝚏 𝚑𝚎'𝚜 𝚍𝚘𝚒𝚗𝚐 𝚘𝚔𝚊𝚢 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚖𝚎. ❞
 
 ------------------------------------
 
@@ -52,6 +53,7 @@ Outside of co-hosting, I also play the other Mafia Games! You may find me in [th
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS
+- That one person. /heavy-target
 
 -------------------------------------
 

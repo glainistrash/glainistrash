@@ -35,16 +35,7 @@ I always hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untit
 **Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
 
-**Main Brainrotting: Visionary Squad, Tower Defense Simulator, Doomspire Defense, Guts & Blackpowder, Blocktales and Kindergarten !!!**
-
-
-------------------------------------
-
-Or sometimes in [Dock/Island](https://file.garden/ZogMxQjYh2LIAH4W/Untitled88_20250614185636.png).
-
-I am also Co-host in one of Maifa Games! Usually the House of No Returns Mafia, you may find me co-hosting with [this cos](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%20AU%EF%B8%B6-%20CO-HOST%20_%20Mafia%20Gen-stand-shadow-name-bg-padded-16x.png).
-
-Outside of co-hosting, I also play the other Mafia Games! You may find me in [this cos](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20_Tch---__Commander-stand-shadow-name-bg-padded-16x%20(1).png) a lot. When I spectate, I use [this cos](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20Bald%20Comm%20%5BSPEC%5D-stand-shadow-name-bg-padded-16x.png) instead.
+**Main Brainrotting: Visionary Squad, Tower Defense Simulator, Guts & Blackpowder, Blocktales and Kindergarten!!
 
 ------------------------------------
 

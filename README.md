@@ -53,7 +53,7 @@ Outside of co-hosting, I also play the other Mafia Games! You may find me in [th
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS
-- That one person. /heavy-target
+- Skyler (No longer my friend. They've been distant, cold, rude and not taking any responsibility.)
 
 -------------------------------------
 

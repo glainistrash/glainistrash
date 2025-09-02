@@ -1,4 +1,4 @@
-![Me and my malewife <3](https://file.garden/ZogMxQjYh2LIAH4W/Untitled1035_20250624033922.png)
+![Me and my malewife <3](https://file.garden/ZogMxQjYh2LIAH4W/Untitled1035_20250829190707.png)
 ## ❝ 𝙸 𝚖𝚒𝚜𝚜 𝚖𝚢 𝚖𝚊𝚕𝚎𝚠𝚒𝚏𝚎. 𝙸 𝚠𝚘𝚗𝚍𝚎𝚛 𝚒𝚏 𝚑𝚎'𝚜 𝚍𝚘𝚒𝚗𝚐 𝚘𝚔𝚊𝚢 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚖𝚎. ❞
 
 ------------------------------------
@@ -15,7 +15,7 @@ Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | �
  
 Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for almost a decade.
 
-I always hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time). You will usually find me in these cos/OCs:
+I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time), or I may roam around the map to find the fandoms I'm in. You will usually find me in these cos/OCs:
 
 **Guts and Blackpowder:**
 [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Millard_RMK-stand-shadow-name-bg-padded-16x.png), [Barry](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%EF%B8%B6-%20Strawbarry_RMK-stand-shadow-name-bg-padded-ponyplush-16x.png), [Winston](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20bro%20tames%20a%20demon-stand-shadow-name-bg-padded-16x.png), [Julian](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Don'tHugMe%2CI'mScared-stand-shadow-name-bg-padded-16x.png) 
@@ -31,6 +31,8 @@ I always hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untit
 
 **Kindergarten:**
 [Protagonist/Kidd/Kid](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23KG%EF%B8%B6-%20i%20still%20can't%20read-stand-shadow-name-bg-padded-16x.png), [Nugget](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23KG%EF%B8%B6-%20NUGGET%20CAVE%20OF%20LOVE-stand-shadow-name-bg-padded-16x.png), [Felix](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23KG%EF%B8%B6-%20rich%20boy-stand-shadow-name-bg-padded-16x.png), [Theodore](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23KG%EF%B8%B6-%20Teddy%20bear-stand-shadow-name-bg-padded-16x.png) 
+
+**South Park:** [Craig Tucker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23SP%EF%B8%B6-%20_!@%23%24%20you%2C%20dude-_-stand-shadow-name-bg-padded-ponyplush-16x.png), [Super Craig](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23SP%EF%B8%B6-%20(S)uper%20Craig-stand-shadow-name-bg-padded-ponyplush-16x.png), [Blake Skyler](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23SP%20OC%EF%B8%B6-%20Blake%20Skyler-stand-shadow-name-bg-padded-ponyplush-16x.png)
 
 **Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png)
 
@@ -79,7 +81,7 @@ Roblox: @MurrddrNewStuff
 
 -------------------------------------
 
-![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-Qx.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-lP.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-MC.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-QG.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/0051-pisces.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-w1.gif)
+![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-Qx.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-lP.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-MC.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-QG.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/0051-pisces.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-w1.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/screwyouguys.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/southparkkenny.gif)
 
 ![](https://file.garden/ZogMxQjYh2LIAH4W/button.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/pisces.gif)
 

@@ -15,7 +15,7 @@ Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | ðŸ‡
  
 Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for almost a decade.
 
-I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time), or I may roam around the map to find the fandoms I'm in, or minding my business in the South Park area. You will usually find me in these cos/OCs:
+I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time), or I may roam around the map to find the fandoms I'm in, or minding my business in the [South Park area](https://file.garden/ZogMxQjYh2LIAH4W/map.png). You will usually find me in these cos/OCs:
 
 **Guts and Blackpowder:**
 [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Millard_RMK-stand-shadow-name-bg-padded-16x.png), [Barry](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%EF%B8%B6-%20Strawbarry_RMK-stand-shadow-name-bg-padded-ponyplush-16x.png), [Winston](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20bro%20tames%20a%20demon-stand-shadow-name-bg-padded-16x.png), [Julian](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Don'tHugMe%2CI'mScared-stand-shadow-name-bg-padded-16x.png) 

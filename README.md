@@ -1,11 +1,11 @@
-![Me and my malewife <3](https://file.garden/ZogMxQjYh2LIAH4W/Untitled1035_20250829190707.png)
+![Me and my malewife <3](https://file.garden/ZogMxQjYh2LIAH4W/Untitled1035_20250914193940.png)
 ## ❝ 𝙸 𝚖𝚒𝚜𝚜 𝚖𝚢 𝚖𝚊𝚕𝚎𝚠𝚒𝚏𝚎. 𝙸 𝚠𝚘𝚗𝚍𝚎𝚛 𝚒𝚏 𝚑𝚎'𝚜 𝚍𝚘𝚒𝚗𝚐 𝚘𝚔𝚊𝚢 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚖𝚎. ❞
 
 ------------------------------------
 
 ### Basic information
 
-Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom | 🇻🇳 | INFP-T | Demisex, Gay | Knows Vietnamese, English and a bit of Japanese.
+Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Multi-shipper | 🇻🇳 | INFP-T | Demisex, Gay | Knows Vietnamese, English and a bit of Japanese.
 
 <sup>^Copypasta from my Pronouns Page</sup>
 

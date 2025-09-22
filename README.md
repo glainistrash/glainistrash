@@ -69,7 +69,7 @@ Glain isn't active on some of them but why not sharing? Although not active but 
 
 [Cara](https://cara.app/glaintrashart) 
 
-[Tumblr](https://www.tumblr.com/glaintrashart?source=share) 
+[Tumblr](https://glaintrasharrtt.tumblr.com/) 
 
 [BlueSky](https://bsky.app/profile/glaintrashart.bsky.social) 
 

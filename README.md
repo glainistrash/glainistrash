@@ -46,7 +46,6 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS
-- Skyler (No longer my friend. They've been distant, cold, rude and not taking any responsibility.)
 
 -------------------------------------
 

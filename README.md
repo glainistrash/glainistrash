@@ -88,4 +88,12 @@ Roblox: @MurrddrNewStuff
 
 -------------------------------------
 
+#### Random images
+![](https://file.garden/ZogMxQjYh2LIAH4W/imagee.png)
+![](https://file.garden/ZogMxQjYh2LIAH4W/Capturee.JPG)
+![](https://file.garden/ZogMxQjYh2LIAH4W/Captureee.JPG)
+![Pic of my dog being petted by aunt but I made it a meme](https://file.garden/ZogMxQjYh2LIAH4W/a9n0cn.jpg)
+
+--------------------------------------
+
 #### I sometimes forgot my Github exists so I rarely checked here 😭

@@ -1,5 +1,5 @@
 ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
-Art by @JokeOnYou-hihihi
+Art by twin 🤑
 ------------------------------------
 
 ### Basic information

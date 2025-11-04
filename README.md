@@ -1,5 +1,5 @@
-will replace image here later
-
+![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
+Art by @JokeOnYou-hihihi
 ------------------------------------
 
 ### Basic information

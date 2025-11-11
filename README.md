@@ -1,4 +1,4 @@
-![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
+<img width="168" height="300" alt="image" src="https://github.com/user-attachments/assets/489f0f08-5deb-4826-a023-1e8661d6f204" />![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
 Art by twin 🤑
 ------------------------------------
 
@@ -45,6 +45,8 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS
+- Lucas, if you know him from G&B fandom then never speak his name in front of me. SUCH A LIAR AND A HUGE CHEATER I FUCKING HATE HIM
+- I may sometime block freely. It's either you're in my DNI list or piss me off.
 
 -------------------------------------
 

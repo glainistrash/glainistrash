@@ -1,4 +1,4 @@
-<img width="168" height="300" alt="image" src="https://github.com/user-attachments/assets/489f0f08-5deb-4826-a023-1e8661d6f204" />![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
+![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
 Art by twin 🤑
 ------------------------------------
 

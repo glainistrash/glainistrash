@@ -45,17 +45,19 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
 - DID/OSDD/SYSTEMS
-- Lucas, if you know him from G&B fandom then never speak his name in front of me. SUCH A LIAR AND A HUGE CHEATER I FUCKING HATE HIM
 - I may sometime block freely. It's either you're in my DNI list or piss me off.
 
--------------------------------------
 
 ### INTERACT WITH EXTREME CAUTION
 
 - Dandy World fandom
-- Forsaken fandom
 - Regretevator fandom
 - Phighting fandom
+
+
+### ON THIN ICE
+- Forsaken fandom
+- Lucas, if you know him from G&B fandom then never speak his name in front of me. SUCH A LIAR AND A HUGE CHEATER I FUCKING HATE HIM
 
 -------------------------------------
 

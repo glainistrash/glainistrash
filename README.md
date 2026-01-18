@@ -33,7 +33,7 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 **Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png),  [TDS AU! Comannder](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20Commander-stand-shadow-name-bg-padded-16x%20(1).png) (Main skin when playing mafia games), [TDS AU! Commander but bald](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20%5BSPEC%5D%20Bald%20Comm-stand-shadow-name-bg-padded-16x%20(1).png) (Ditto when spectating in game)
 
 
-**Main Brainrotting: My THE UMBRELLAS OCs, Doomspire Defense, Visionary Squad, Tower Defense Simulator, Guts & Blackpowder, South Park!!**
+**Main Brainrotting: My THE UMBRELLAS OCs, Doomspire Defense, Visionary Squad, Tower Defense Simulator, etc!!**
 
 ------------------------------------
 
@@ -50,6 +50,9 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 - Dandy World fandom
 - Regretevator fandom
 - Phighting fandom
+- Guts & Blackpowder Fandom, mostly the fanbase has gotten toxic. The exceptions are the people I know: online family & friends •
+- Yumeshippers, I do make some exceptions.
+- Any of my EX-friends, to be honest.
 
 
 ### ON THIN ICE

@@ -4,7 +4,7 @@ Art by twin 🤑
 
 ### Basic information
 
-Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Multi-shipper | 🇻🇳 | INFP-T | Demisex, Gay | Knows Vietnamese, English and a bit of Japanese.
+Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Multi-shipper | 🇻🇳 | INFP-T | Demisex, Bisexual | Knows Vietnamese, English and a bit of Japanese.
 
 <sup>^Copypasta from my Pronouns Page</sup>
 
@@ -12,12 +12,9 @@ Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Mul
 
 ### Introduction and where to find me!
  
-Greetings! My name is Glain! I'm a Vietnamese Artist who has been drawing for almost a decade.
+greetings, my name is Glain. im a vietnamese artist who loves to play games, i prefer speaking english, i suck ass at my mother tongue language.
 
 I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time), or I may roam around the map to find the fandoms I'm in, or at [dock](https://file.garden/ZogMxQjYh2LIAH4W/map%20part%202.JPG) to find Mafia to play (You may find me sometimes play with one of my old friends). You will usually find me in these cos/OCs:
-
-**Guts and Blackpowder:**
-[Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png), [Millard](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Millard_RMK-stand-shadow-name-bg-padded-16x.png), [Barry](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%EF%B8%B6-%20Strawbarry_RMK-stand-shadow-name-bg-padded-ponyplush-16x.png), [Winston](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20bro%20tames%20a%20demon-stand-shadow-name-bg-padded-16x.png), [Julian](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20Don'tHugMe%2CI'mScared-stand-shadow-name-bg-padded-16x.png) 
 
 **Doomspire Defense:**
 [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%20OC%EF%B8%B6-%20Umbrella_RMK-stand-shadow-name-bg-padded-16x.png), [General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%EF%B8%B6-%20General%20_%20C%2BH_W2I-stand-shadow-name-bg-padded-16x.png), [Advisor](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23079%EF%B8%B6-%20Advisor-MV-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Admiral Mike](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23077%EF%B8%B6-%20Admiral%20Mike-DD%20_%20C%2BH-stand-shadow-name-bg-padded-16x.png), [Yellow General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23076%EF%B8%B6-%20Yellow%20General-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png)
@@ -33,7 +30,7 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 
 **South Park:** [Craig Tucker](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23SP%EF%B8%B6-%20_!@%23%24%20you%2C%20dude-_-stand-shadow-name-bg-padded-ponyplush-16x.png), [Super Craig](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23SP%EF%B8%B6-%20(S)uper%20Craig-stand-shadow-name-bg-padded-ponyplush-16x.png), [Blake Skyler](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23SP%20OC%EF%B8%B6-%20Blake%20Skyler-stand-shadow-name-bg-padded-ponyplush-16x.png), [Scott Malkinson](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23SP%EF%B8%B6-%20Scott%20Malkinson-stand-shadow-name-bg-padded-16x.png)
 
-**Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png), [TDS AU! Comannder](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20Commander-stand-shadow-name-bg-padded-16x%20(1).png) (Main skin when playing mafia games), [TDS AU! Commander but bald](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20%5BSPEC%5D%20Bald%20Comm-stand-shadow-name-bg-padded-16x%20(1).png) (Ditto when spectating in game)
+**Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png),  [TDS AU! Comannder](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20Commander-stand-shadow-name-bg-padded-16x%20(1).png) (Main skin when playing mafia games), [TDS AU! Commander but bald](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20%5BSPEC%5D%20Bald%20Comm-stand-shadow-name-bg-padded-16x%20(1).png) (Ditto when spectating in game)
 
 
 **Main Brainrotting: My THE UMBRELLAS OCs, Doomspire Defense, Visionary Squad, Tower Defense Simulator, Guts & Blackpowder, South Park!!**
@@ -100,3 +97,4 @@ Roblox: @MurrddrNewStuff
 --------------------------------------
 
 #### I sometimes forgot my Github exists so I rarely checked here 😭
+#### Small sidenote, those who knew me from my g&B skins, i have left the fandom and quitted the game :""

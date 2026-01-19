@@ -1,5 +1,5 @@
 ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
-Art by twin 🤑
+Art by my wife 🤑
 ------------------------------------
 
 ### Basic information
@@ -12,7 +12,7 @@ Glain | 17 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Mul
 
 ### Introduction and where to find me!
  
-greetings, my name is Glain. im a vietnamese artist who loves to play games, i prefer speaking english, i suck ass at my mother tongue language.
+greetings, my name is Glain. im a vietnamese artist who loves to play games, i prefer speaking english, i suck ass at my mother tongue language. i am also taken by my beloved partner, feel free to check her page out! i also type in lowercase and almost no comma
 
 I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time), or I may roam around the map to find the fandoms I'm in, or at [dock](https://file.garden/ZogMxQjYh2LIAH4W/map%20part%202.JPG) to find Mafia to play (You may find me sometimes play with my twin). You will usually find me in these cos/OCs:
 
@@ -79,7 +79,7 @@ Glain isn't active on some of them but why not sharing? Although not active but 
 
 Discord: @glainistrash
 
-Roblox: @MurrddrNewStuff
+i do play roblox but my app restricts me from chattin with other people/my friends
 
 -------------------------------------
 

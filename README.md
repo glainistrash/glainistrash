@@ -89,8 +89,11 @@ i do play roblox but my app restricts me from chattin with other people/my frien
 
 ![](https://file.garden/ZogMxQjYh2LIAH4W/de%20kommer.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/gay.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/ezgif.com-crop.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/bombed.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/scott%20eating.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/the%20scott%20malkinson%20show) ![](https://file.garden/ZogMxQjYh2LIAH4W/i%20can't%20take%20it%20anymore%20scott) ![](https://file.garden/ZogMxQjYh2LIAH4W/captain%20diabetes) ![](https://file.garden/ZogMxQjYh2LIAH4W/im%20going%20home) ![](https://file.garden/ZogMxQjYh2LIAH4W/new%20kid%201) ![](https://file.garden/ZogMxQjYh2LIAH4W/new%20kid%202) ![](https://file.garden/ZogMxQjYh2LIAH4W/na%20na%20na%20na%20na) ![](https://file.garden/ZogMxQjYh2LIAH4W/creek.gif)
 
+All of the stuff below made by my wifey <3. Consider checking her [page](https://github.com/JokeOnYou-hihihi) out!!
+![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215143246.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215134447.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215142231.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215142012.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215144930.png)
+
 ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled1073_20260204145707-removebg-preview.png)
-User box made by my wife <3
+
 
 -------------------------------------
 

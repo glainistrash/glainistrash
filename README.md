@@ -1,10 +1,9 @@
-![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled967.png)
-Art by my twin 🤑
+![](https://file.garden/ZogMxQjYh2LIAH4W/brawler%20x%20warden.png)
 ------------------------------------
 
 ### Basic information
 
-Glain | 18 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Multi-shipper | 🇻🇳 | INFP-T | Demisex, Bisexual | Knows Vietnamese, English and a bit of Japanese.
+Glain | 18 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Multi-shipper | 🇻🇳 | INFP-T | Demisex, Bisexual | Knows Vietnamese, English and Japanese.
 
 <sup>^Copypasta from my Pronouns Page</sup>
 
@@ -14,7 +13,7 @@ Glain | 18 | March 8th | Trans, FTM | Artist and Roleplayer | Multi-fandom & Mul
  
 greetings, my name is Glain. im a vietnamese artist who loves to play games, i prefer speaking english, i suck ass at my mother tongue language. i also type in lowercase and almost no comma
 
-I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time), or I may roam around the map to find the fandoms I'm in, or at [dock](https://file.garden/ZogMxQjYh2LIAH4W/map%20part%202.JPG) to find Mafia to play (You may find me sometimes play with my twin). You will usually find me in these cos/OCs:
+I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Untitled86_20250614185559.png) (The small lavender icon is where I'm sitting all the time), or I may roam around the map to find the fandoms I'm in, or at [dock](https://file.garden/ZogMxQjYh2LIAH4W/map%20part%202.JPG) to find Mafia to play. You will usually find me in these cos/OCs:
 
 **Doomspire Defense:**
 [Umbrella](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%20OC%EF%B8%B6-%20Umbrella_RMK-stand-shadow-name-bg-padded-16x.png), [General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23DD%EF%B8%B6-%20General%20_%20C%2BH_W2I-stand-shadow-name-bg-padded-16x.png), [Advisor](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23079%EF%B8%B6-%20Advisor-MV-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Admiral Mike](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23077%EF%B8%B6-%20Admiral%20Mike-DD%20_%20C%2BH-stand-shadow-name-bg-padded-16x.png), [Yellow General](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23076%EF%B8%B6-%20Yellow%20General-DD%20_%20INT-stand-shadow-name-bg-padded-16x.png)
@@ -33,7 +32,7 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 **Others:** [Picta](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23153%EF%B8%B6-%20Picta-The%20Gallery%20_%20INT-stand-shadow-name-bg-padded-16x.png), [Silas](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23G%26B%20OC%EF%B8%B6-%20LostBothOfHisEyes-stand-shadow-name-bg-padded-16x.png),  [TDS AU! Comannder](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20Commander-stand-shadow-name-bg-padded-16x%20(1).png) (Main skin when playing mafia games), [TDS AU! Commander but bald](https://file.garden/ZogMxQjYh2LIAH4W/pony-town-%23TDS%20AU%EF%B8%B6-%20%5BSPEC%5D%20Bald%20Comm-stand-shadow-name-bg-padded-16x%20(1).png) (Ditto when spectating in game)
 
 
-**Main Brainrotting: My THE UMBRELLAS OCs, Doomspire Defense, Visionary Squad, Tower Defense Simulator, etc!!**
+**Main Brainrotting: My THE UMBRELLAS OCs, Doomspire Defense, Visionary Squad, Tower Defense Simulator, Nullscape etc!!**
 
 ------------------------------------
 
@@ -41,29 +40,22 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 
 - Proshippers, pedophiles, groomers, etc...
 - [Basic DNI](https://dni-criteria.carrd.co/)
-- DID/OSDD/SYSTEMS
+- Guts & Blackpowder Fandom
 - I may sometime block freely. It's either you're in my DNI list or piss me off.
 
 
 ### INTERACT WITH EXTREME CAUTION
 
 - Dandy World fandom
-- Regretevator fandom
+- DID/OSDD/SYSTEMS
 - Phighting fandom
-- Guts & Blackpowder Fandom, mostly the fanbase has gotten toxic. The exceptions are the people I know: online family & friends •
-- Yumeshippers, I do make some exceptions.
 - Any of my EX-friends, to be honest.
-
-
-### ON THIN ICE
-- Forsaken fandom
-- Lucas, if you know him from G&B fandom then never speak his name in front of me. SUCH A LIAR AND A HUGE CHEATER I FUCKING HATE HIM
 
 -------------------------------------
 
 ### Social Media
 
-Glain isn't active on some of them but why not sharing? Although not active but Glain's DM is opened!
+I ain't active on some of them but why not sharing?
 
 [Twitter](https://x.com/GlainTrashArt?t=2wvxaqWSQEZZhJlK7dDi0g&s=09) 
 
@@ -79,8 +71,6 @@ Glain isn't active on some of them but why not sharing? Although not active but 
 
 Discord: @glainistrash
 
-i do play roblox but my app restricts me from chattin with other people/my friends
-
 -------------------------------------
 
 ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-Qx.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-lP.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-MC.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-QG.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/0051-pisces.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/blinkiesCafe-w1.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/screwyouguys.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/southparkkenny.gif)
@@ -89,10 +79,8 @@ i do play roblox but my app restricts me from chattin with other people/my frien
 
 ![](https://file.garden/ZogMxQjYh2LIAH4W/de%20kommer.gif)  ![](https://file.garden/ZogMxQjYh2LIAH4W/gay.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/ezgif.com-crop.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/bombed.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/scott%20eating.gif) ![](https://file.garden/ZogMxQjYh2LIAH4W/the%20scott%20malkinson%20show) ![](https://file.garden/ZogMxQjYh2LIAH4W/i%20can't%20take%20it%20anymore%20scott) ![](https://file.garden/ZogMxQjYh2LIAH4W/captain%20diabetes) ![](https://file.garden/ZogMxQjYh2LIAH4W/im%20going%20home) ![](https://file.garden/ZogMxQjYh2LIAH4W/new%20kid%201) ![](https://file.garden/ZogMxQjYh2LIAH4W/new%20kid%202) ![](https://file.garden/ZogMxQjYh2LIAH4W/na%20na%20na%20na%20na) ![](https://file.garden/ZogMxQjYh2LIAH4W/creek.gif)
 
-All of the stuff below made by my wifey <3. Consider checking her [page](https://github.com/JokeOnYou-hihihi) out!!
+All of the stuff below made by my OOMF. Consider checking her [page](https://github.com/JokeOnYou-hihihi) out!!
 ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215143246.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215134447.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215142231.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215142012.png) ![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled999_20251215144930.png)
-
-![](https://file.garden/ZogMxQjYh2LIAH4W/Untitled1073_20260204145707-removebg-preview.png)
 
 
 -------------------------------------

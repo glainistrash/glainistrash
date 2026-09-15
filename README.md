@@ -43,14 +43,6 @@ I usually hang out [below roblox area](https://file.garden/ZogMxQjYh2LIAH4W/Unti
 - Guts & Blackpowder Fandom
 - I may sometime block freely. It's either you're in my DNI list or piss me off.
 
-
-### INTERACT WITH EXTREME CAUTION
-
-- Dandy World fandom
-- DID/OSDD/SYSTEMS
-- Phighting fandom
-- Any of my EX-friends, to be honest.
-
 -------------------------------------
 
 ### Social Media
